@@ -1,2 +1,3 @@
 # RafalMiodowski
-About me
+
+Szanowni Państwo, witam serdecznie wszystkich odwiedzających 👋
