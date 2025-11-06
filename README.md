@@ -1,2 +1,2 @@
-# Rafa-Miodowski
+# RafalMiodowski
 About me
